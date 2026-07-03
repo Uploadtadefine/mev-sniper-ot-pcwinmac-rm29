@@ -1,4 +1,4 @@
-# 
+# Ultimato MEV sniper bot ferramentas para Mac OS | Novo MEV sniper bot ferramentas para PC Windows. Com execução rápida e indexação de blockchain — otimizado para máximo desempeño en cada plataforma.
 
 
 
